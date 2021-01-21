@@ -1,0 +1,1 @@
+"kartishok.com" 
